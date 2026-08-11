@@ -1,9 +1,5 @@
-https://xrest.net/categories/
-https://tubepleasure.com/ru/
-https://wwwb.siza.tv/
-https://5porno.pro/new/
-https://m.tnaflix.com/ru
-
-
-
-
+https://ebalko.net/
+http://prostoporno.mobi/
+https://sex-ru.vip/
+https://www.pornozavod.cc/pop-porno/
+https://pornopisa.com/categories
